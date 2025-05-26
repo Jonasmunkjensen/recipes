@@ -1,9 +1,10 @@
 # The incred(eatable) cookie bonanza
 
-**Ingredients for cookies**
-
 *The happy helper*
+
 Please feel free to invite your kids into the project
+
+**Ingredients for cookies**
 
 - 240 grams flour
 - 3/4 tsp salt
