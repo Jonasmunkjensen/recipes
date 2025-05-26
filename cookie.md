@@ -2,6 +2,9 @@
 
 **Ingredients for cookies**
 
+*The happy helper*
+Please feel free to invite your kids into the project
+
 - 240 grams flour
 - 3/4 tsp salt
 - 140 grams butter
