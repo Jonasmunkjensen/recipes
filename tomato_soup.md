@@ -1,4 +1,4 @@
-# Daddy's tomato soup
+# The tomato recipe of the year
 
 **Ingredients for the tomato soup**
 
