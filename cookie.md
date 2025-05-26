@@ -1,4 +1,4 @@
-# The incredible cookie bonanza
+# The incred(eatable) cookie bonanza
 
 **Ingredients for cookies**
 
