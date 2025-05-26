@@ -1,6 +1,6 @@
 # Daddy's tomato soup
 
-**Ingredients for soup**
+**Ingredients for the tomato soup**
 
 - 4 tbs butter
 - 0.5 large onion, cut into large wedges
